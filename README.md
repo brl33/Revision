@@ -1,2 +1,2 @@
-# Revision
-Kto check się everything is ok...Im not experienced thks Like that
+#Rev.ision \/check| everything is ok•l•.Im    2  not experie•nced th\ks Like that. \is .
+1
